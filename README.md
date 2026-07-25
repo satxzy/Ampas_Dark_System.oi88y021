@@ -1,1 +1,1 @@
-# Ampas_Dark_System.oi88y021
+Crack By @yatimitu123 Github Ini Telah Diawasi Oleh Dark
